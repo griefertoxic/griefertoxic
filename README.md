@@ -7,4 +7,9 @@
   
 $${\color{#A28AB3}\text{Dupi , Kairu}}$$
 
-${\color{#A28AB3}\text{Transmale}}$ ${\color{#A28AB3}\text{He/Him . 13 yr old}}$
+${\color{#A28AB3}\text{Transmale}}$ ${\color{#A28AB3}\text{He/Him . 13 yrs old ♥}}$
+${\color{#A28AB3}\text{Spanish , Eng}}$
+
+$${\color{#A28AB3}\text{i don't ship brandonozo.}}$$
+
+<img width="610" height="45" alt="Image" src="https://github.com/user-attachments/assets/0385342a-ff5e-4121-913e-99339997edf2" />
